@@ -8,4 +8,4 @@ I'm currently a postdoctoral researcher at TUDelft in the Netherlands 🇳🇱 .
 * I like to [do science](https://www.dmax.org.uk/thesis/), specifically when looking at how people behave and interact with search engines. 🧪
 * I also like teaching and doing talks about things, whether it be about my research, or about more squishy things in life, like my experiences of doing *x, y or z*. It's good to share! 👨‍🏫
 
-You can see more about me 👀  (and reach out to me! ☎️) on my website at [dmax.org.uk](https://www.dmax.org.uk). Cheers!
+You can see 👀 more about me (and reach out to me! ☎️) on my website at [dmax.org.uk](https://www.dmax.org.uk). Cheers!
